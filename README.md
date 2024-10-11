@@ -24,6 +24,19 @@ https://docs.google.com/document/d/1ls-N59j1h8s1CnlVDVVp8amxl_7SHROEsZ1t6om4y6M/
 - 2 Sides
 https://docs.google.com/document/d/1mAFm6uF352khisBDrfwj7Ta9Xmj7vcdXRyrfjM_xdwY/edit?tab=t.0#heading=h.rx4ojpf5hh5g
 
-- 
+- FANTAN 5D
+https://docs.google.com/document/d/1732gOA1w6e2UKP5ytCVCKJl1mzgeHoDHnmSAQ8wHNMg/edit?tab=t.0
+
+- Fast 3 Fantan
+https://docs.google.com/document/d/1gO88j8S-OoFPbcLhcaqY8Z1LgW8hiHlXKDOpSM_7MBU/edit?tab=t.0#heading=h.uqd7oobpziig
+
+- PK10 Fantan
+https://docs.google.com/document/d/15IcOG9esfIDngI2aYlsZ6OoI1FJPldiYOWL_nk5Tu4U/edit?tab=t.0#heading=h.ddxprk897dje
+
+- KENO Fantan
+https://docs.google.com/document/d/1ykjuv7VLiu4xjOF2LM5-Ll0YenQBuL08otJiAlaH0z8/edit?tab=t.0
+
+- MARK 6 Fantan
+https://docs.google.com/document/d/1375Vi9gY6CMVf2LqSlbdfKTC3ZBRHOiYOLkO8GPUufw/edit?tab=t.0#heading=h.auq11rhmx84z
 
 
